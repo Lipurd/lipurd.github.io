@@ -1,1 +1,0 @@
-# lipurd.github.io
